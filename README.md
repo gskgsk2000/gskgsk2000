@@ -3,4 +3,4 @@
 - ⚡ I love solving problems with help of data
 - 🔍 How to find me: 
   - 🔄 [LinkedIn](www.linkedin.com/in/sai-karthik-gamineedi-292152184)
-  - ✉️ sai.karthikjava1122.com
+  - ✉️ sai.karthikjava1122@gmail.com
